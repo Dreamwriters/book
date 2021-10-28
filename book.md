@@ -75,3 +75,5 @@ Ravek continued along the top of the Bulwark until coming about the western gate
 "Thanks," Ravek said to the guard's boots. He descended down into the rough-hewn tunnel and started trotting once the guards were lost to the windings of Watch's caverns. He checked his gear and winced thinking of how he would need to explain the lack of a catch as well as losing his net. Stout cording for nets came from further inland and commanded a high price. Plants grew poorly on the Bulwark. Soil never lasted long on the cliffs, and anything that tried to put its tendrils into that stony ediface was ripped out by the constant power of the Breath. Sea plants crisped in the sun and fell apart in the hands of its users. It was common for men coming of age in Watch to be given a net to feed their families, and boys studied the process of reknotting and mending nets. To have lost his grandfather's net to his own stupid mistake was shameful.
 
 From the rockroad after the gatehouse, Ravek passed empty doorways of rooms designed to house Watch's Guard. They were relics of a long time lost and Watch had been a mighty fortress housing an army to guard the Artery.
+
+
