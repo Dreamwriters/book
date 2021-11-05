@@ -79,4 +79,6 @@ From the rockroad after the gatehouse, Ravek passed empty doorways in the stone 
 
 The rockroad opened to sunlight and a cliffroad that wound along the Bulwark leading into Watch proper. Like all cliffroads, it sloped gently into where it met the rock of the cliff, allowing rain and seawater to channel back down the sluice of the road and continuing to the network of sluices of Watch. From there, the water was either ejected back into the sea or redirected into the fresh water cisterns. A improvement from the days of the fortress that still served Watch well today. There was enough rainfall to sustain a much larger population and enough cisterns seperately guarded that thirst was never a problem.
 
-The light angled up from the sea and dazzled his eyes. The ocean rested comfortably after the pounding it had given, and stretched out to the curving horizon beyond. He squinted, thoughts of what lay beyond tantalizing his mind's eye as it had many times before. 
+The light angled up from the sea and dazzled his eyes. The ocean rested comfortably after the pounding it had given, and stretched out to the curving horizon beyond. He squinted, thoughts of what lay beyond tantalizing his mind's eye. Old Fishermen told tales of people and places beyond the Sea Father. They whispered of green fields, soft earth, and quiet meadows with no seasound except the wind.
+
+He shook himself and turned his feet toward the swaying ropeway before him and Calepo beyond that.
