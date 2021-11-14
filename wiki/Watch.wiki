@@ -1,0 +1,25 @@
+# =====Introduction=====
+
+Watch is the focal place, or at least the start, of the story.
+
+It is an old fortress built into the walls of a gorge opening for a river called the [[Artery]]. Streets, caves, and walls are carved into Watch's sides, and holds a surprising amount of people, though not as many as was designed for it to hold. In the center of the gorge opening is a huge statue called the [[First Fisherman]].  Different levels of the cliffs are connected via ladders, ropes, rope walkways, chutes, stairways, and sloped paths.
+
+Each side of Watch is connected by several [[ropeways|ropeways]]. One side of Watch houses the [[Citadel]] proper, the "keep" of the fortress and most militarily secure. It is on this side that the wealthier and more prosperous people of Watch reside, closer to the ruling class in the Citadel. The other side of Watch is the less militarily secure part, more built to house people and families to support and maintain the old fortress, in the way it was intended when built.
+
+# =====Features as a fortress=====
+
+Water is surprisingly or perhaps unsurprisingly an important consideration for the construction of the fortress in the old days. First, constant infiltration of sea water threatens to spoil any fresh water. Second, there's no source of freshwater nearby, as the land is rocky and riven by the [[:Veins]]. Thirdly, in the event of a siege, having a reliable and safe water source is paramount.
+
+The designers of the fortress took all these things to mind when building it. All surfaces of Watch are sloped so as to shed water back to sea in a safe and consistent manner.  Roads gently sloped to one side to direct the water to a channel or sluice (see [[cliffroad|cliffroads]]). These channels formed a network from the topmost levels down to the bottom, ejecting water back to sea when the [[Breath]] came. The channel network was also used to harvest fresh water from the rain. When it rained and no seawater was at risk of contaminating the supply, the channels would redirect their flow through a clever system of locks and gates. The freshwater would then be carried deep into the [[Bulwark]] around Watch and stored inside large caverns or cisterns. A smaller channel system would carry the freshwater around Watch from these, providing easy access.  See [[wp>roman_aqueduct|these]] for an example.
+
+In terms of fortifications, Watch is formidable. Outward facing [[cliffroad|cliffroads]] line the walls. Many levels of cliffroad are cut into the Bulwark, one over another. The effect of this is that though there is not much exposed wall to protect the mouth of the Artery, there is much fortification and room for many, many defenders. The lowest exposed cliffroad of Watch is, by necessity, hundreds of feet from the base of the Bulwark. This makes climbing into Watch difficult. Climbing the Bulwark by night is also less effective than one might think, because it remains illuminated by the First Fisherman statue. The base of each side of Watch is effectively covered by the opposite side's defenders due to both walls facing one another. Channel outlets on the lowest cliffroads function as murder holes for hot oil or projectiles during attacks.
+
+By sea, Watch is all but impregnable. A fleet anchored around Watch will eventually become smashed to pieces by the Breath, making sieges impossible. This leaves only a frontal assault. Siege engines are too impractical to lob projectiles into the walls from the sea. Even should they try to break the walls with siege, the force of impact is absorbed by the sheer mass of the Bulwark behind every part of Watch. The best that could be accomplished is to destroy crenalations. Climbing into Watch is the only path, and for reasons already expressed this is dubious at best.
+
+By land, Watch is weirdly inaccessible and thus difficult to assault. Walking the top of the Bulwark above Watch does not lend itself to much purpose
+
+The placement of Watch as a fortress implies it was meant to maintain control of the Artery. And it does.
+
+=====Areas of interest=====
+
+=====The people inside=====
