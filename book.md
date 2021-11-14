@@ -82,3 +82,6 @@ The rockroad opened to sunlight and a cliffroad that wound along the Bulwark lea
 The light angled up from the sea and dazzled his eyes. The ocean rested comfortably after the pounding it had given, and stretched out to the curving horizon beyond. He squinted, thoughts of what lay beyond tantalizing his mind's eye. Old Fishermen told tales of people and places beyond the Sea Father. They whispered of green fields, soft earth, and quiet meadows with no seasound except the wind.
 
 He shook himself and turned his feet toward the swaying ropeway before him and Calepo beyond that.
+
+
+
