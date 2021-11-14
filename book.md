@@ -83,5 +83,3 @@ The light angled up from the sea and dazzled his eyes. The ocean rested comforta
 
 He shook himself and turned his feet toward the swaying ropeway before him and Calepo beyond that.
 
-
-
