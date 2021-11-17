@@ -2,11 +2,11 @@
 
 Watch is the focal place, or at least the start, of the story.
 
-It is an old fortress built into the walls of a gorge opening for a river called the [[Artery]]. Streets, caves, and walls are carved into Watch's sides, and holds a surprising amount of people, though not as many as was designed for it to hold. In the center of the gorge opening is a huge statue called the [[First Fisherman]].  Different levels of the cliffs are connected via ladders, ropes, rope walkways, chutes, stairways, and sloped paths.
+It is an old fortress built into the walls of a gorge opening for a river called the [[Artery]]. Streets, caves, and walls are carved into Watch's sides, and holds a surprising amount of people, though not as many as was designed for it to hold. In the center of the gorge opening is a huge statue called the [[First Fisherman]].  Different levels of the cliffs are connected via ladders, ropes, rope walkways, chutes, stairways, and sloped paths. To orient themselves inside Watch, inhabitants have created cardinal directions in reference to the First Fisherman. To his left is the leftward side of Watch, and to his right is the rightward side of Watch.
 
 Each side of Watch is connected by several [[ropeways|ropeways]]. One side of Watch houses the [[Citadel]] proper, the "keep" of the fortress and most militarily secure. It is on this side that the wealthier and more prosperous people of Watch reside, closer to the ruling class in the Citadel. The other side of Watch is the less militarily secure part, more built to house people and families to support and maintain the old fortress, in the way it was intended when built.
 
-# =====Features as a fortress=====
+#otherother =====Features as a fortress=====
 
 Water is surprisingly or perhaps unsurprisingly an important consideration for the construction of the fortress in the old days. First, constant infiltration of sea water threatens to spoil any fresh water. Second, there's no source of freshwater nearby, as the land is rocky and riven by the [[Veins]]. Thirdly, in the event of a siege, having a reliable and safe water source is paramount.
 
