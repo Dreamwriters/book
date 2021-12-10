@@ -77,9 +77,32 @@ Ravek continued along the top of the Bulwark until coming to the rockroad of Wat
 
 From the rockroad after the gatehouse, Ravek passed empty doorways in the stone walls designed to house Watch's Guard. They loomed as relics of a time when Watch had been a mighty fortress guarding the Artery. He wondered how he had so casually played hide-then-find in those caverns of night. A broken ankle, getting lost, or encountering someone from the criminal underworld could have been death. Sea orphans often played within those dead halls because of some swearing they had heard the voices of their dead parents. In low moments, they venture inside. Most admit hearing nothing, other than being spooked. Some swear that they heard whispers, and they propagate the stories. A few never emerge again. Ravek assumed it had been one of the dangers.
 
-The rockroad opened to sunlight and a cliffroad that wound along the Bulwark leading into Watch proper. Like all cliffroads, it descended into where it met the rock of the cliff, allowing rain and seawater to channel back down the sluice of the road and continuing to the network of sluices of Watch. From there, the water was either ejected back into the sea or redirected into the fresh water cisterns. A improvement from the days of the fortress that still served Watch well today. There was enough rainfall to sustain a much larger population and enough cisterns that thirst was never a problem.
+The rockroad opened to sunlight and a cliffroad that wound along the Bulwark leading into Watch proper. Like all cliffroads, it sloped into where it met the rock of the cliff, allowing rain and seawater to channel back down to the network of sluices of Watch. From there, the water was either ejected back into the sea or redirected into the fresh water cisterns. A improvement from the days of the fortress that still served Watch well today. There was enough rainfall to sustain a much larger population and enough cisterns that thirst was never a problem.
 
 The light angled up from the sea and dazzled his eyes. The ocean rested comfortably after the pounding it had given, and stretched out to the curving horizon beyond. He squinted, thoughts of what lay beyond tantalizing his mind's eye. Old Fishermen told tales of people and places beyond the Sea Father. They whispered of green fields, soft earth, and quiet meadows with no seasound except the wind.
 
-He shook himself and turned his feet toward the swaying ropeway before him and Calepo beyond that.
+He shook himself and turned his feet toward the swaying ropeway before him and Calepo beyond that. The ropeway consisted of a heavy line thick enough to walk on and side ropes to grab with both hands. The two types of rope were lashed together at intervals with smaller cord to prevent separation. To Ravek and anyone else from Watch, a ropeway was just a ropeway. To outsiders, they seemed to be a more complicated way of comitting suicide. 
 
+Ravek stepped out onto the ropeway. After it had steadied, he ambled along it with head down and a tense set to his mouth. 
+
+A cough jerked his attention forward to see a wide man with big black beard and barrel chest lumbering toward him. Ravek planted both feet and twisted, leaning back and hooking his arms around the side rope. The rope creaked loudly as he approached.
+
+"Excuse me, Fisherman," Ravek said, eyes down. The silver hook in his ear caught the light as his head shifted to glance at him through the corner of his eyes, thoughts elsewhere. He leaned away from Ravek, beginning to pull himself past. He stopped. His frame shifted and squared itself to Ravek, big beard topped with hard eyes.
+
+"Where is your net, Ravek?" he said. He mirrored Ravek, leaning back against his own side rope like a seal eyeing fish too long in the sun.
+
+"I lost it sir. I had to... cut it away to avoid the Breath. To save myself." The words ran into themselves. The big man said nothing. His stillness shook the air.
+
+"I see," he said. His leg whipped out and swept Ravek's feet off of the walking line. Ravek panicked and cried out as the side line cut into his elbows, lurching out over the surf below. He swung his legs trying to hook his feet back onto the heavy line, but he was swinging too far away.
+
+The Fisherman leaned forward, pinning him with his calm stare. "Ravek, would you save yourself by setting fire to your ship and jumping into the sea? Would you save yourself by stabbing your wife and drinking poison?"
+
+"No sir!" Ravek yelped. His arms were fire from holding himself.
+
+The Fisherman nodded thoughtfully. "Would you see the children of Watch starve so you may survive?"
+
+"No sir!" Ravek clenched his jaw, cutting off his explanations. The fire had migrated from his arms to his back, and his arms shook. He tasted blood from the wound in his mouth.
+
+The Fisherman's eyes searched his face. He leaned back, pushing the walking line toward Ravek. Seeing his salvation, Ravek swung his legs to the line, hooking it with his feet and pulling himself back to the ropeway. Ragged breaths shuddered through him.
+
+"Your grandfather gave you that net, did he not?"
