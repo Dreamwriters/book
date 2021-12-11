@@ -101,8 +101,20 @@ The Fisherman leaned forward, pinning him with his calm stare. "Ravek, would you
 
 The Fisherman nodded thoughtfully. "Would you see the children of Watch starve so you may survive?"
 
-"No sir!" Ravek clenched his jaw, cutting off his explanations. The fire had migrated from his arms to his back, and his arms shook. He tasted blood from the wound in his mouth.
+"No sir!" Ravek clenched his jaw, cutting off his explanations. The fire had migrated from his shaking arms to his back. He tasted blood from the wound in his mouth.
 
 The Fisherman's eyes searched his face. He leaned back, pushing the walking line toward Ravek. Seeing his salvation, Ravek swung his legs to the line, hooking it with his feet and pulling himself back to the ropeway. Ragged breaths shuddered through him.
 
 "Your grandfather gave you that net, did he not?"
+
+"Yes...sir," Ravek managed to stay polite. Barely.
+
+"Ravek, only the Sea Father grants us nets so that we may partake of his bounty," the Fisherman said, as if he had not nearly killed him. "Should He wish to grab you and pull you to his kingdom, only then he will take your net..." His voice hardened, "...and should he want you, you will not cheat him by discarding his gifts to evade him."
+
+Ravek's tongue ran ahead of him, "But Fisherman, he would have taken the net regardless! Had I not cast off the net, I would have died as well!"
+
+His eyes flashed, "And so you live without his bounty. And whose catch will you take now to feed the belly of he who can't feed himself?" He tensed. Then relaxed. "It is clear to me that your grandfather and uncle had not taught you properly before being claimed by Sea Father, so you will come at dawn tomorrow to Fisherman's Wharf to work for your food. As you will do every day until you recover what you lost."
+
+"Sir! How can I find the net if I work all day?" Ravek said, panic gripping his chest.
+
+"Yes, how will you? An easier problem to fix than how to feed a family without a net. You will be at the Wharf tomorrow," and with that, he turned and continued onward without a backward glance or confirmation of his order. Ravek's shoulders slumped, and he sighed. 
